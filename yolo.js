@@ -1,0 +1,1 @@
+jajal penting entok
